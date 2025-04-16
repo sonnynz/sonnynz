@@ -1,5 +1,6 @@
 
-![sonny-banner-profile](https://github.com/user-attachments/assets/be8edf02-37a4-42c4-adfc-4a2b3b323870)
+![sonny-banner-profile-1](https://github.com/user-attachments/assets/a25248c8-5a4f-4abb-8528-5274b389090b)
+
 
 
 ## Hi there 👋
